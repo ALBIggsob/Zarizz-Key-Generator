@@ -1,0 +1,1 @@
+# Zarizz-Key-Generator
